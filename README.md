@@ -1,0 +1,1 @@
+# majaphoto.github.io
